@@ -8,7 +8,7 @@ meu nome é jhon adilan
 
 ### Você entrar em contato comigo 📫
 
-jhonaila2020@gmail.com
+jhonadilan2020@gmail.com
 
 @jhonzin15y
 
